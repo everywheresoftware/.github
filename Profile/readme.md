@@ -1,3 +1,3 @@
-# Everywhere Software Solutions
+# Everywhere
 
-Profile In Costruction 😀😀😀
+your friendly neighborhood business
